@@ -1,6 +1,6 @@
 <div align="center">
  
-<h1># The theory of p'</h1>
+<h1>The theory of p'</h1>
 </div>
 
 <sub>
