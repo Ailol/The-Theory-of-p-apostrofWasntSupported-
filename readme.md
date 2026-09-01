@@ -85,17 +85,6 @@ The way to rest at difficult times:
 <br />
 
 <div align="center">
- 𒌐 
-</div>
-
-ִ
-ִ
-ִ
-
-
-
-
-<div align="center">
 
 <h3><sub>𝄞 <sub><sub> </sub>♥︎</sub></sub>
 </div>
