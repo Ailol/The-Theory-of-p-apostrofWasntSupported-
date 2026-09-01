@@ -77,11 +77,9 @@ The way to rest at difficult times:
 <div>
 
 <div align="center" >
-
-<sub></sub> 𑣲ꫝilℴ<sub>
+𑣲ꫝilℴ
 </div><div align="center">
  𒌐 
-
 </div>
 
 ִ
