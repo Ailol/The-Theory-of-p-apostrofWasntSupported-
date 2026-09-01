@@ -19,13 +19,13 @@ s'bit ❖
  ### <sub><sub0>ailo</sub></sub><sub><sub>s</sub></sub>10'<sub></sub><sub>s</sub><sub></sub><sub></sub><sub>z</sub> <sub></sub><sub></sub><sub></sub><sub>div calibrational factors </sub><sub></sub><sub></sub>
 
 #### Section 1. <sub><sub><sub><sub>" The homo'e-go massage " </sub></sub></sub></sub>
-
+```
 §1. The theory of p'earth is about interaction in confined space
 §2. The theory of pii is the about working the numbers to understand hive and finding the logical safety
 §3. the theory of probability is that sometimes one has to find own probabilities to enjoy
 so that one isnt stuck to pii.p
 §4.The theory of everything is true when vision and understandment isnt beyond pii, thank you for being a honeybadger pii.
-
+```
 #### Sec 4.5 <sub></sub><sub>Speed is key, time' is (in) me2.</sub>
 
 §4.5 ~ Sometimes one has to go to roots, E=mc up in seconds is cool, but for further depths into the law of p', learn this
