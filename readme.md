@@ -1,6 +1,10 @@
+<div align="center">
+ 
+<h1># The theory of p'</h1>
+</div>
 
 <sub>
-# The theory of p'
+
 
 ## Welcome
 
